@@ -46,5 +46,8 @@ breathe, so its more like walking around in reduced gravity and that's a lot of 
 
 Fen likes to mess with her "voice" and mimic sounds that aren't particularly organic.  When she sings, it
 seems autotuned as she will instantly jump between frequencies with nothing to bridge them. Humming has a
-similar issue in that it sounds like a piezoelectric buzz.
+similar issue in that it sounds like a piezoelectric buzz.  If she has any natural talent, it would require
+a crystari vocal coach to bring it out.  She's done the best she can with her parents help, but can't quite
+get there.  When Fen speaks, though, her accent and tone is indistinguishable from her elven peers--this
+is due to long hours of vocal training with her Elven teachers during her time at school.
 
