@@ -51,3 +51,8 @@ a crystari vocal coach to bring it out.  She's done the best she can with her pa
 get there.  When Fen speaks, though, her accent and tone is indistinguishable from her elven peers--this
 is due to long hours of vocal training with her Elven teachers during her time at school.
 
+Physical Appearance:
+
+Fen is a 5'4" asymmetrical, bulky crystari (fen cooked too long?) that has a translucent violet body with
+lavender opal occlusions. This gives her skin an iridescent (oily) appearance.  Her eyes are cyan motes of
+light. See attached file Screenshot_20231106-140245_Facebook.jpg for an example.
