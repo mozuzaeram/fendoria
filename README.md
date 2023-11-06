@@ -56,3 +56,5 @@ Physical Appearance:
 Fen is a 5'4" asymmetrical, bulky crystari (fen cooked too long?) that has a translucent violet body with
 lavender opal occlusions. This gives her skin an iridescent (oily) appearance.  Her eyes are cyan motes of
 light. See attached file Screenshot_20231106-140245_Facebook.jpg for an example.
+
+Nasty people would say "THIS is a crystari of legend? I expected beauty, grace, not a sad buzzing rock."
