@@ -1,7 +1,10 @@
 Fendoria (Fen)
-Female(?) Crystari Priest
+Crystari (F) Priest of Larea
+Passive Good, Moral/Order
 
-4 ft-aught S H O R T S T A C K
+Background Specials:
+Remove Sing Racial Skill (did not practice this due to societal pressures)
+Add Jewlery Knowledge Racial Skill (practiced this instead due to special interests)
 
 Raised by adoptive elven parents, Fen thinks of herself as just another elf,
 but faces ostracism from the jerks she calls her peers.  She wants to make real friends,
