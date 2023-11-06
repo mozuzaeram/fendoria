@@ -33,3 +33,18 @@ be followed to the letter, and she will insist that the others in her circle do 
 "be a good kid" to make her parents proud but her internal moral compass seems to point NW instead of N.
 Reconciling her need for acceptance and desire to fit in with her own idea of right and wrong puts her at
 odds with her community.
+
+Mannerisms:
+
+Fen does not need to blink.  Other eyeball having people find this extremely unnerving, so Fen tries to
+mimic it with very poor success.  Often she'll forget to do it if she's very interested in someone, and
+then try to make up for it with a bunch of blinking all at once.  It either causes the others to laugh
+or wierds them out even more depending on the person.
+
+Fen likes to go "swimming" and be in water despite sinking like a rock.  Fortunately, she doesn't need to
+breathe, so its more like walking around in reduced gravity and that's a lot of fun.
+
+Fen likes to mess with her "voice" and mimic sounds that aren't particularly organic.  When she sings, it
+seems autotuned as she will instantly jump between frequencies with nothing to bridge them. Humming has a
+similar issue in that it sounds like a piezoelectric buzz.
+
