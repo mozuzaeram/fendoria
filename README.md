@@ -1,3 +1,5 @@
+![](Fendoria.jpg)
+
 Fendoria (Fen)
 Crystari (F) Priest of Larea
 Passive Good, Moral/Order
